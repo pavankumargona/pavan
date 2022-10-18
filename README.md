@@ -1,0 +1,5 @@
+- Hi I'm pavankumar 
+- Studying at ALIET in vijayawada
+- Interests:Cricket and playing Games
+- God's Child 
+- Here i came to develop my programming skills
